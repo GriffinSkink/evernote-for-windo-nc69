@@ -1,4 +1,4 @@
-# 
+# automatic Evernote for Windows Extension | folders + templates is the best Evernote for Windows extension, featuring folders and templates. Powerful, efficient, and optimized for
 
 
 
